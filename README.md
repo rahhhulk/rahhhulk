@@ -1,5 +1,5 @@
 - 👋 Hi, I’m @rahhhulk
-- 👀 I’m interested in ... many things but mainly in devlopment
+- 👀 I’m interested in ... many things but mainly in devlopment and AI
 - 🌱 I’m currently learning ... everything everyday
 - 📫 How to reach me ... drop a mail or comment
 
